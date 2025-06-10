@@ -13,7 +13,7 @@ Requirements (if/when we open):
 
 • 3k–5k+ messages
 
-• 3–5 hrs of voice chat daily
+• 3–5 hrs of voice chat daily 
 
 • Positive reputation in the community
 
